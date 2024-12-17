@@ -1,4 +1,4 @@
-Quick Vegan Tacos
+Quick Vegan Tacos 🌮
 ==================
 
 Ingredients:
