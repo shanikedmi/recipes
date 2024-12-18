@@ -1,4 +1,4 @@
-slowly Vegan Tacos 🌮
+slowly Vegan Tacos 
 ==================
 
 Ingredients:
